@@ -1,4 +1,4 @@
-<h3 align="center">My name is Iryna and I'm a QA Engineer, from Stuttgart/ Germany.</h3>
+<h3 align="right">My name is Iryna and I'm a QA Engineer, from Stuttgart/ Germany.</h3>
 
 - 🤝 I’m looking for **work on interesting projects / stay focused and enjoy every challenge.**
 
