@@ -4,7 +4,7 @@
 
 - 📫 How to reach me - **yeluninairyna@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IUUss4CHOriob2_1nSFPs87jbsXV92bz/view?usp=sharing](https://drive.google.com/file/d/1IUUss4CHOriob2_1nSFPs87jbsXV92bz/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IUUss4CHOriob2_1nSFPs87jbsXV92bz/view?usp=sharing](https://drive.google.com/file/d/1PXUqDdTzIhBpIwtiVbzTYVazicuctTtE/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
