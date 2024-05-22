@@ -2,7 +2,7 @@
 
 - 🤝 I’m looking for **work on interesting projects / stay focused and enjoy every challenge.**
 
-- 📫 How to reach me - **yeluninairyna@gmail.com** , **https://t.me/irynayelunina** , **linkedin.com/in/iryna-yelunina-a32271307** 
+- 📫 How to reach me - **yeluninairyna@gmail.com** , **https://t.me/irynayelunina**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1IUUss4CHOriob2_1nSFPs87jbsXV92bz/view?usp=sharing](https://drive.google.com/file/d/1PXUqDdTzIhBpIwtiVbzTYVazicuctTtE/view?usp=sharing)
 
